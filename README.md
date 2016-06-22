@@ -1,8 +1,5 @@
 # hello-world
 just another repository
-my names Nurbol 88888888888888888
-gggghdf
-jjgjgjg
-hfzggjx
-ggkgffxghbj
-hgzjcfcvj
+my names Nurbol
+im 14 years old 
+
